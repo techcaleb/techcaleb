@@ -50,4 +50,4 @@ I'm a passionate technologist who loves building innovative solutions and blendi
 
 ---
 -->
-> ✨ "Design creatively, Build Smartly, and Learn endlessly."
+> ✨ "Build With Design In Mind,  Learn With Desire."
